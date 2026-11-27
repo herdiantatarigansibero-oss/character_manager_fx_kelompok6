@@ -1,1 +1,0 @@
-# character_manager_fx_kelompok6
